@@ -1,1 +1,1 @@
-SERVER DISCORD PROJECT: https://discord.com/invite/yqZKCJ4h2n
+SERVER DISCORD PROJECT: https://discord.gg/r5kB4rtkjw
