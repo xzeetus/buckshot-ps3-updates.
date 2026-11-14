@@ -1,2 +1,1 @@
-# buckshot-ps3-updates.
-Updates for BUCKSHOT ROULETTE PS3
+SERVER DISCORD PROJECT: https://discord.com/invite/yqZKCJ4h2n
